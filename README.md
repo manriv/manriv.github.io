@@ -1,1 +1,0 @@
-# manriv.github.io
